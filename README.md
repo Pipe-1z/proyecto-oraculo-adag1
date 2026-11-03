@@ -1,1 +1,0 @@
-# proyecto-oraculo-adag1
